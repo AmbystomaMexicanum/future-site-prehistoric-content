@@ -1,5 +1,7 @@
 # 8/12葡萄牙语小练笔
 
+[![](https://img.shields.io/badge/Audio%20version-Click%20here-blue)](https://example.com/)
+
 （写于2021年8月12日。）
 
 （本练笔大致基于 _Portuguese para Ensino Universitário 1_ 的 _Unidade 4_。）
