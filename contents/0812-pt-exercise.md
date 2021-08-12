@@ -23,4 +23,4 @@ Eu gosto muito dela, e a admiro muito.
 A **Promessa** é uma moça no ano meu. Não **me lembro** da cara dela, mas a **alma** dela é **sem dúvida** bonita e interessante. Ama a **ciência**, a **arte** e a **literatura**.
 É paciente e **tolerante**. Eu gosto muito dela. Ela é minha **luz**.
 
-A Xu Fengcan é uma estudante duma escola militar. É também uma **pilota** no **Exército**. É bonita, elegante e valente. Eu a admiro muito. Ela é **verdadeiramente** minha heroína.
+Xu Fengcan é uma estudante duma escola militar. É também uma **pilota** no **Exército**. É bonita, elegante e valente. Eu a admiro muito. Ela é **verdadeiramente** minha heroína.
