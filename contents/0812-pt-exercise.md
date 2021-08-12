@@ -15,7 +15,7 @@ A Crisântemo-e-Espada é uma colega anterior e **antiga** minha. Ela é muito e
 
 ## Parte II
 
-A Lorena é uma estudante um **ano** mais **velha** que eu. Ela tem o cabelo curto e é forte. É elegante e **valente**. É **realmente** **especial** e **até** **se parece** com as heroínas na **história**. 
+A Lorena é uma estudante um **ano** mais **velha** que eu. Ela tem o cabelo curto e é forte. Embora é uma moça, ele **se parece com** um moço. É elegante e **valente**. É uma moça **realmente** **especial** e **até** se parece com as heroínas na **história**. 
 Eu gosto muito dela, e a admiro muito.
 
 A **Promessa** é uma moça no ano meu. Não **me lembro** da cara dela, mas a **alma** dela é **sem dúvida** bonita e interessante. Ama a **ciência**, a **arte** e a **literatura**.
