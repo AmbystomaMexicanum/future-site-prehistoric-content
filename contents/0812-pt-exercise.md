@@ -1,6 +1,6 @@
 # 8/12葡萄牙语小练笔
 
-[![](https://img.shields.io/badge/Audio%20version-Click%20here-blue)](https://example.com/)
+[![Listen to this passage](https://img.shields.io/badge/Listen%to%this%passage-Click%20here-blue)](https://example.com/)
 
 （写于2021年8月12日。）
 
