@@ -10,7 +10,7 @@
 
 O Calítimo é um colega **anterior** meu. Ele é baixo, e é feio. **Além disso**, ele também é estúpido. Eu não gosto **de todo** dele.
 
-A Bastardina é uma moça na **mesma** **classe** anterior *que eu*. Ela tem o cabelo comprido, usa óculos e é bonita. Mas ela não é extrovertido, e não é **acessível** **no meu ponto de vista**.
+A Bastardina é uma moça na **mesma** **classe** anterior *que eu*. Ela tem o cabelo comprido, usa óculos e é bonita. Mas ela não é extrovertida, e não é **acessível** **no meu ponto de vista**.
 **O que é mais**, o **espírito** dela é **estéril**, como um **papel** em **branco**. Eu *a* **detesto** muito.
 
 A Crisântemo-e-Espada é uma colega anterior e **antiga** minha. Ela é muito estudiosa, mas **raramente** **sorri**. **Na opinião minha**, é antipática e chata. Eu não gosto **absolutamente** dela.
