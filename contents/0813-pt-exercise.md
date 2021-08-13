@@ -38,7 +38,7 @@ Estas flores aqui são roxas.
 
 (eu)-----(você)--------------------------------------edifício
 
-Aquele edifício ali é amarela.
+Aquele edifício ali é amarelo.
 
 (eu)-----(você)-----livro-----------------------------------
 
