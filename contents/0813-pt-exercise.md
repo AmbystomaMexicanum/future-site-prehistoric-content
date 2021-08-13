@@ -73,3 +73,6 @@ A bandeira significa muitos **grupos** das pessoas com sexualidade não **tradic
 **Todos** os anos, as pessoas de **minoria** sexual **através do** mundo **desfilam** na rua, **a fim de** **mostrar** que são **orgulhosos** das sexualidades deles
 e são **contra** a **estigmazação** **a respeito das** sexualidades deles.
 **Entre** todos estes **desfiles**, o *EuroPride* é **o mais** **famoso**. **Veja**, como eles são orgulhosos das sexualidades deles!
+
+![rainbow-flag](https://user-images.githubusercontent.com/87800941/129359807-c9c20b2b-ee37-4148-9d23-1c260494e4a6.jpg)
+
