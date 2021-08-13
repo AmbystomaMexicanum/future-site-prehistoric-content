@@ -1,5 +1,9 @@
 # 8/13葡萄牙语小练笔
 
+本文写于2021年8月13日。
+
+本文大致基于 *Português para Ensino Universitário 1* 的 *Unidade 5*。
+
 ## 基础词汇复习
 
 ### As cores
@@ -28,7 +32,7 @@ Estes ténis de futebol aqui é prateados.
 
 Esse futebol aí é **principalmente** branco.
 
-(eu)-----(você)-----flores
+(eu)-----(você)-----flores-----------------------------------
 
 Estas flores aqui são roxas.
 
@@ -36,7 +40,7 @@ Estas flores aqui são roxas.
 
 Aquele edifício ali é amarela.
 
-(eu)-----(você)-----livro
+(eu)-----(você)-----livro-----------------------------------
 
 \- De que cor é isto?
 
