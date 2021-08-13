@@ -66,7 +66,7 @@ Aquele edifício ali é amarela.
 
 ### Parte II
 
-A bandeira de **sexualidades** **especiais** é colorida. É composta de muitas cores, como um arco-íris: o vermelho, o cor-de-laranja, o amarelo, o verde, o azul e o roxo.
+A bandeira de **sexualidades** **especiais** é colorida. É **composta** de muitas cores, como um **arco-íris**: o vermelho, o cor-de-laranja, o amarelo, o verde, o azul e o roxo.
 A bandeira significa muitos **grupos** das pessoas com sexualidade não **tradicionais**,
 **incluinda** os **homossexuais** (**não importa** homens e mulheres), os **bissexuais**, e os **transgéneros**.
 
