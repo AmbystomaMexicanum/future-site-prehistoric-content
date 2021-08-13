@@ -26,7 +26,7 @@ aquilo; aquele (-a, -es, -as); ali
 
 (eu)-----ténis de futebol------------------------------(você)
 
-Estes ténis de futebol aqui é prateados.
+Estes ténis de futebol aqui são prateados.
 
 (eu)---------------------------------------futebol-----(você)
 
