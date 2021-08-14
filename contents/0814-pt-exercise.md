@@ -18,7 +18,7 @@ porque detesto **fortemente** aqueles (aquel*as*, **em particular**) quem **pref
 A Lorena é uma rapariga quem eu admiro verdadeiramente, e estou ansioso para **desenvolver** **laços** mais fortes com ela. Mais **parece** que os laços entre eles são muito mais forte.
 Eu não sabia disso até ontem.
 
-**Por que** eu sentir alarmante? É porque os relacionamentos entre mim a Crisântemo-e-Espada não são bons, ou **pelo menos** **suspeito** **que sim**, embora os detalhes são **ainda** escuros.
+**Por que** eu sentir alarmante? É porque os relacionamentos entre mim e a Crisântemo-e-Espada não são bons, ou **pelo menos** **suspeito** **que sim**, embora os detalhes são **ainda** escuros.
 **Temo** **somente** que ela **diz** à Lorena as **más** minhas histórias, e coloca um fin aos nossos relacionamentos. **Porém** é **desconhecido** **se** lhe as disse.
 
 **Assim**, as minhas **próximas** **etapas** estão ser **testá**-la. Vou **experimentar** **conversar** com ela, e ver se os seus **comportamentos** são normais.
