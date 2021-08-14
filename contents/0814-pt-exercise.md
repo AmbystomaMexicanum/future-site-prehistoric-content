@@ -19,7 +19,7 @@ A Lorena é uma rapariga quem eu admiro verdadeiramente, e estou ansioso para **
 Eu não sabia disso até ontem.
 
 **Por que** eu sentir alarmante? É porque os relacionamentos entre mim e a Crisântemo-e-Espada não são bons, ou **pelo menos** **suspeito** **que sim**, embora os detalhes são **ainda** escuros.
-**Temo** **somente** que ela **diz** à Lorena as **más** minhas histórias, e coloca um fin aos nossos relacionamentos. **Porém** é **desconhecido** **se** lhe as disse.
+**Temo** **somente** que ela **diz** à Lorena as **más** minhas histórias, e coloca um fim aos nossos relacionamentos. **Porém** é **desconhecido** **se** lhe as disse.
 
 **Assim**, as minhas **próximas** **etapas** estão ser **testá**-la. Vou **experimentar** **conversar** com ela, e ver se os seus **comportamentos** são normais.
 Se são, tudo bem; se não são, vou contemplar as minhas próximas etapas.
